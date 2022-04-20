@@ -1,0 +1,2 @@
+# GSHIB
+Shiba Gold is the newest passive rewards token on the BSC to pay holders with dividends in the world-famous token SHIBA. Entering the world of DeFi hasn’t been easier until recently. Anyone can start earning passive income automatically just by being a holder of Shiba Gold. Utilizing the innovative Reflection Token Technology your passive rewards Will added to your wallet multiple times throughout the day without the need to claim.
